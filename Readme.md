@@ -6,5 +6,5 @@
 - 💼 **Entrepreneur**: Exploring new opportunities and innovative solutions in the data space.
 
 ## Get in Touch
-- 📫 Reach out to me for collaborations or just a chat: [LinkedIn](https://www.linkedin.com/in/n.polovinkin).
+- 📫 Reach out to me for collaborations or just a chat: [LinkedIn](https://www.linkedin.com/in/npolovinkin).
 
